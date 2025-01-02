@@ -1,2 +1,2 @@
 # AI_Kecerdasan-Buatan
-TUBES
+Khulika Malkan
